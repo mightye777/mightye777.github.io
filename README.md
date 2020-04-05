@@ -1,1 +1,0 @@
-# mightye777.github.io
